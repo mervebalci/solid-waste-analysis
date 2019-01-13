@@ -1,0 +1,2 @@
+# solid-waste-analysis
+Merii 15:06 data.xlsx pardon bu değil atıyom tekrar 1data.xlsx olmuş mu baksana bi aşkım indicator diye boş bir blok var Böyle bişey mi lazım sana Örnek olarak bu senin datan değil Ben örnek bişey yaptım şuan Merve 10 saattir konuşuyorum Duyucak mısın beniiii !!!!!!!!!!!!!!!!!! A Comparative Analysis on the Generation of Solid Waste in Seven Small Islands Countries Since 1970
